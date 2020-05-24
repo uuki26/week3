@@ -1,4 +1,4 @@
-Rflection on week3 material
+Refection on week3 material
 
 At first, I was a little scared by the text becuase it looks like a heavy and a complex week. But I tried to make myself focus on the instruction step by step, and do what the professor ask me to do. Then I found out it is actually easy and quick 
 to finish.
