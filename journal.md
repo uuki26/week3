@@ -19,3 +19,4 @@ Problems that digital historians may have
 lost the sense of authenticity of touch the work. 
 
 
+By taking this class, I learned how to organize data, and how to find information quickly and easily. These skills provided me with the first step of being a 'digital person' 
